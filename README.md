@@ -5,6 +5,8 @@
 
 - 👨‍💻 View my projects here at [my repository.](https://github.com/aithasahith02)
 
-- 📝 Feel free to read my articles on medium [https://medium.com/@aithasahith0214](here.)
+- 📝 Feel free to read my articles on [medium](https://medium.com/@aithasahith0214)
 
 - 📫 Reach out to me at **aithasahith0214@gmail.com**
+
+- 🔗 This is my Linkedln [Profile.](https://www.linkedin.com/in/sahith-aitha-845887191)
