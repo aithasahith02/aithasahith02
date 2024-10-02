@@ -10,3 +10,6 @@
 - 📫 Reach out to me at **aithasahith0214@gmail.com**
 
 - 🔗 This is my Linkedln [Profile.](https://www.linkedin.com/in/sahith-aitha-845887191)
+
+- ✨ Feel free to look into my licenses and certifications [here](https://www.credly.com/users/sahith-aitha) at credly.
+
